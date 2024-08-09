@@ -1,4 +1,4 @@
-## Primeiramente boa tarde 🛹🏀🚲
+## Seja bem vindo ao meu perfil 🛹🏀🚲
 
 Meu nome é Joás(jojo)
 
